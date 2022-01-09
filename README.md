@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Freagzy
 - 👀 I’m Developing Fire RP!
-- 🌱 This is a new FiveM rp server!
-- 💞️ Discord: https://discord.gg/vXPYFQ2by9
+- 🌱 This is a new FiveM dm server!
+- 💞️ Discord: https://discord.gg/kNk4HeHqG5
